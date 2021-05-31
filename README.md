@@ -1,0 +1,11 @@
+Pani Literally translates to water and here the Puris are fried puffed crisp dough balls which are hollow. Generally, the water or pani is sour, tangy as well as spicy. This spicy pani is balanced with the addition of sweet tamarind chutney.
+This sweet chutney is called as Meetha (which means sweet) Pani. The spicy water is called as Teekha (which means spicy) Pani. both are added in the puri along with the main filling which consists of boiled potatoes, cooked chickpeas, moong sprouts or a thick dry curry made from white peas which is called as Ragda.
+I don’t know who invented pani puri or how it came into existence. Its one of the popular street foods of India. Whereas in Mumbai, we call it pani puri. In the northern states, its called Golgappa and in bengal, its called as puchka. In Bihar and Jharkand its known as gupchup.
+As mentioned above, this pani recipe is both spicy, tangy as well as sweet. so you don’t need to make the sweet tamarind chutney. However if you want a more sweeter taste, you can make the sweet chutney and serve with the pani puri.
+The puri or pooris for making pani puri are made from flour or sooji (cream of wheat or rava) or both. These can be brought ready from the stores or can be made at home too.
+If you want to make pooris at home, then check this post -> Puri recipe for golgappa.
+For the stuffing, you can use your choice of fillings. At home we prefer moong sprouts or ragda. You can also use boiled potatoes and onions. Even boiled white chickpeas or black chickpeas can be used along with boiled potatoes. If you want to use moong sprouts as the filling, then you can check this recipe of Mumbai style pani puri with moong sprouts.
+Assemble everything before you begin to make pani puri.
+You can prepare the pani before a few hours and then chill it in the fridge.
+Adding ice cubes may dilute the taste and flavor of the pani.
+Addition of black salt gives a really good taste and flavor. So if possible do try to add black salt in the pani recipe.
